@@ -21,9 +21,11 @@
 3. Vierte el coquito en una botella o jarra de cristal y mete al refrigerador por al menos 2 horas
 4. Sirve bien frío acompañado con un poquito de canela molida encima
 
+### Video:
+https://youtu.be/7VVfVkoNoSg
+
 ### Referencia:
 https://www.quericavida.com/recetas/coquito-puertorriqueno/8d9967f5-43eb-4691-af18-ac4fb32c42fd
 
-### Video:
-https://youtu.be/7VVfVkoNoSg
+
 
